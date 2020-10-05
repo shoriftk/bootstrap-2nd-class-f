@@ -1,1 +1,1 @@
-# bootstrap-2nd-class-f
+https://shoriftk.github.io/bootstrap-2nd-class-f/. 
